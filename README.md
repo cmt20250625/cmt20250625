@@ -33,7 +33,7 @@
 
 点击访问：<a href="https://hl108.pages.dev/">今日黑料独家爆料</a>
 
-点击访问：<a href="hhttps://hl106.pages.dev/">黑料社91看片</a>
+点击访问：<a href="https://hl106.pages.dev/">黑料社91看片</a>
 
 点击访问：<a href="https://hj-10.pages.dev/">海角社區官網在线入口</a>
 
